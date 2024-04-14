@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... coding
 - 🌱 I’m currently learning ... git
 - 💞️ I’m looking to collaborate on ... stuff
-- 📫 How to reach me ... gsjksghkghlukwgsuilgwruliwguilwgrugwrugury
+- 📫 How to reach me ...13 Gedagedegedagado road,Skibidi toilet,Ohio,SU1 4ES
 - 😄 Pronouns: ...ryequhrqthuetqrhuitquih4grhuwargwhugwruiawrug
 - ⚡ Fun fact: ... ohio memes are true
 
